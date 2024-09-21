@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Niklaspoo
+- 👀 I’m interested in game dev.
+- 🌱 I’m currently learning in Gradia Lyseon lukio.
+- 📫 How to reach me niklaspollanen3@gmail.com
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: Currently working on TOWSTS : https://niklaspoo.itch.io/towsts
